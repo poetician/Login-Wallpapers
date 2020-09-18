@@ -1,6 +1,7 @@
 # Ownership
 If you show ownership, I'll comply with your wishes. Otherwise they're simply circulating.
 
-## Poetician Addendum
+## Notes
 
-The original collection was assembled by DT, however I'll not stop there, though I'm limiting myself to a few hundred or so. Even that will get parsed.
+This is my rustic collection. To be added are some shots from my collection. Much lower res.
+
