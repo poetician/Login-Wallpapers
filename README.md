@@ -1,2 +1,2 @@
-# Wallpapers
-My collection of collected wallpapers and personal photos
+# Wallpapers of Barn Walls and Doors
+My collection of collected wallpapers on the theme itself.
